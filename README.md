@@ -15,3 +15,4 @@ I will be investigating the sustainability of the cattle industry. The sources w
 
 I will be investingating the beef cattle industry as whole. I will focus on the industry's impact on the environment, how the industry has become more sustainable and how the industry can improve its sustainabilty. The audience it meant for individuals who are uninformed about the processes utilized within the beef industry and who do not know how the industry affects the environment. 
 
+
